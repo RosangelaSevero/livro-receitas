@@ -11,6 +11,7 @@
 - 1/2 copo de ketchup
 - 1/3 copo de mostarda
 - 1 copo de cogumelos
+- 50g de azeitonas picadas
 - 1 copo de creme de leite
 - batata palha a gosto
 
